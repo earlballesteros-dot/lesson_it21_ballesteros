@@ -1,1 +1,1 @@
-palconit bayot 
+palconit bayot pala chix - delacerna
